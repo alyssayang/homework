@@ -10,7 +10,7 @@ The girl walked over to see the little guinea pig.
 "Oh, no!" cried Laura. "She's **gone**!"
 
 Sally looked around.   
-"We'll have to find here quickly," she said.  
+"We'll have to find her quickly," she said.  
 "Dogs get guinea pigs sometimes."
 
 Robert and Harry ran over to the cage.
