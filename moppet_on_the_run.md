@@ -28,4 +28,15 @@ could do that!" said Robert.
 The children hunted aound 
 the yard for Moppet.
 
+Suddently, Moppet darted out from behind a tree.
+
+"There she is!"shouted Laura."She's going into those pink flowers".
+
+Harry ran over to the pink flowers and reached in to get Moppet.
+
+But the little guinea pig was too quick for him. She slipped through his hands and scurried across the grass.
+
+Then she ran into some leaves and hid there.
+
+
 
