@@ -41,7 +41,7 @@ Then she ran into some leaves and hid there.
 The children looked down at the leaves.
 
 Sally said, 
-"Guinea pigs are hard to catch. One of ours esaped one."
+"Guinea pigs are hard to catch. One of ours esaped one day."
 
 "What happened to it?" asked Harry.
 
