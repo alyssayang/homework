@@ -38,5 +38,16 @@ But the little guinea pig was too quick for him. She slipped through his hands a
 
 Then she ran into some leaves and hid there.
 
+The children looked down at the leaves.
 
+Sally said, 
+"Guinea pigs are hard to catch. One of ours esaped one."
+
+"What happened to it?" asked Harry.
+
+"That doesn't matter now," said Robert, looking on Laura's face. "come on! We've got to catch Moppet."
+
+"But how can we do it?" asked Sally.
+
+Then Laura said, "Wait here and keep watching the leaves. I've got a idea!"
 
