@@ -49,5 +49,5 @@ Sally said,
 
 "But how can we do it?" asked Sally.
 
-Then Laura said, "Wait here and keep watching the leaves. I've got a idea!"
+Then Laura said, "Wait here and keep watching the leaves. I've got an idea!"
 
