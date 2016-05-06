@@ -51,3 +51,14 @@ Sally said,
 
 Then Laura said, "Wait here and keep watching the leaves. I've got an idea!"
 
+Laura ran over to the table and pulled the cloth off it. She raced back to the leaves and spread where Moppet was hiding.
+"Hold on to a corner, everyone" she said,"and keep the sides down."
+
+The children could see where Moppet was.They watched the little bump she made as she ran around under the tablecloth.
+
+Then, very solwly, Laura reached out and caught Moppet through the tablecloth . "I've **got** her!"she said.
+"But she's very scared .I can feel her shaking." Moppet wriggled and struggled, but Laura held on. "Quick!"
+she said to the others. "Turn the tablecloth over while I keep holding her."
+
+
+
